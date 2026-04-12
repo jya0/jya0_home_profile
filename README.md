@@ -41,6 +41,8 @@ My favourite quote is "Stay Hungry. Stay Foolish" by Steve Jobs.
 
 [//]: <details>
 	<summary><h3>jya0's Overview</h3></summary>
+		2026 ->
+		Continue the grind continue the learning and continue the deep work. Always adapt to new capacities no matter what evironment it may be!<br>
 		2025 ->
 		Still following growth mindset and deep work, and I love to learn to fill in knowledge blindspots.<br>
 		2024 ->
